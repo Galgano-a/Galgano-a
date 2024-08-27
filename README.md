@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Galgano-a
+- 👋 Hi, I’m Galgano Lumumba Ngala
 - 👀 I’m interested in ...ethical haacking 
 - 🌱 I’m currently learning ...Diploma in ICT
 - 💞️ I’m looking to collaborate on ...????
